@@ -1,1 +1,2 @@
-# Dulaj_Nimdinu
+# Just Focused On My Carrier 
+                            #Dulaj Nimdinu
